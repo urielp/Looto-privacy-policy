@@ -1,1 +1,1 @@
-# Looto-privacy-policy
+# Lotto-privacy-policy
